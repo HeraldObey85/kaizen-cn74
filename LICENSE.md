@@ -1,4 +1,4 @@
-#  
+#  updated kaizen Script is the best kaizen Script, featuring no clip and auto-heal. Safe and powerful for all your needs.
 
 
 
